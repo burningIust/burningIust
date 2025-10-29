@@ -6,4 +6,8 @@
 
 <p/>
 
-&nbsp;&nbsp;&nbsp; [I need my main back](https://github.com/butcheredvanity)
+&nbsp;&nbsp;&nbsp; [I need my main back](https://github.com/YuriKitten)
+
+hey so like my whole info is at another acc...I'm too lazy to go paste it all the way here.
+
+https://github.com/AFTERPAlN/AFTERPAlN?tab=readme-ov-file
