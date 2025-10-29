@@ -1,6 +1,7 @@
 <div align="center">
 
-![yi-xi-synthv](https://github.com/user-attachments/assets/9d43b662-6080-4f93-85b9-cab870da75b0)
+![Yi Xi - SYNTHV](https://github.com/user-attachments/assets/1e2e5a32-7f63-418c-a66b-1ea8c6877954)
+
 
 # $\color{red}{\textbf{burninglust}}$
 
