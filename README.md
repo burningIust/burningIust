@@ -3,7 +3,7 @@
 ![Yi Xi - SYNTHV](https://github.com/user-attachments/assets/1e2e5a32-7f63-418c-a66b-1ea8c6877954)
 
 
-# $\color{red}{\textbf{burninglust}}$
+# $\color{light blue}{\textbf{「いたいのいたいのとんでいけ」}}$
 
 <p/>
 
@@ -14,7 +14,7 @@ hey so like my whole info is at another acc...I'm too lazy to go paste it all th
 https://github.com/AFTERPAlN/AFTERPAlN?tab=readme-ov-file
 
 
-# $\color{red}{\textbf{Take note vros..}}$
+# $\color{blue}{\textbf{Note..}}$
 
 <p/>
 
