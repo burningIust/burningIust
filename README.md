@@ -20,5 +20,4 @@ https://github.com/AFTERPAlN/AFTERPAlN?tab=readme-ov-file
 
 This account is just backup unless if I need it. since 3 of my accounts aren't able to be opened or signed in by gmail I'll just stick here. I do not add friend other more ppl please do int with me once before adding me;my discord cant be opened until I get my main back, that's all. thanks
 
-[![Watch the video](https://media1.tenor.com/m/LAg0MCwPYW0AAAAC/by-%E8%A8%98%E9%8C%B2%E7%94%A8-synthv.gif])
-(https://youtu.be/cRFSbeHXFwk?si=CKsU7LHFrhmvF-kq)
+[![I'm a lunatic myself](https://i.sstatic.net/Vp2cE.png)](https://youtu.be/cRFSbeHXFwk?si=CKsU7LHFrhmvF-kq)
