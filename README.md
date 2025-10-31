@@ -24,4 +24,4 @@ This account is just backup unless if I need it. since 3 of my accounts aren't a
 
 
 <p/>
-see that photo up there?↑could you tap that I'm begging yOu
+I wonder who could find the secret link...
